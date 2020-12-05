@@ -1,0 +1,2 @@
+# Dumb-Ideas
+For Writing
